@@ -1,4 +1,4 @@
 # About Me:
-Web Developer<br>Anime Fan (Naruto, Boruto)
+Web Developer<br>🐉 Dragon Ball Fan
 # Contact Me:
 Telegram: @imdanieln
